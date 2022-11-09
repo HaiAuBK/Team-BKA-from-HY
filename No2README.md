@@ -1,1 +1,0 @@
-# Team-BKA-from-HY
